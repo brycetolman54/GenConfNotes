@@ -1,16 +1,18 @@
 # [Saturday Morning Session Speakers](#saturday-morning)
 
-- [Jeffrey R Holland: Prayer](#jeffrey-r-holland)
-- [J Anette Dennis: Symbols and Covenants](#j-anette-dennis)
-- [Alexander Dushku: Testimony](#alexander-dushku) 
-- [Ulysses S Soares: Confidence in Covenants](#ulysses-s-soares)
-- [Jack N Gerard: Integrity](#jack-n-gerard)
-- [Henry B Eyring: Temples](#henry-b-eyring) 
+- [Jeffrey R Holland:   Prayer](#jeffrey-r-holland)
+- [J Anette Dennis:     Symbols and Covenants](#j-anette-dennis)
+- [Alexander Dushku:    Testimony](#alexander-dushku) 
+- [Ulysses S Soares:    Confidence in Covenants](#ulysses-s-soares)
+- [Jack N Gerard:       Integrity](#jack-n-gerard)
+- [Henry B Eyring:      Temples](#henry-b-eyring) 
 
 # [Saturday Afternoon Session Speakers](#saturday-afternoon)
 
-- [David A Bednar: Our Foundation](#david-a-bednar)
-- [Massimo de Feo: ](#massimo-de-feo)
+- [David A Bednar:      Our Foundation](#david-a-bednar)
+- [Massimo de Feo:      Act in Faith](#massimo-de-feo)
+- [Brent H Nielson:     Witnesses](#brent-h-nielson)
+- [Jose L Alonso:       ](#jose--l-alonso) 
 
 
 ## Saturday Morning
@@ -62,5 +64,13 @@
 - We need to bring the Spirit back to our homes from the temple and church attendance. The home is a continuation of those experiences.
 
 ### Massimo de Feo
+
+- Part of acting in faith is to cast off the beggar's coat of scorn or bad feelings once we have forgiven another or ourselves
+
+### Brent H Nielson
+
+- I want to do a better job of recording my witnesses in my journal for my posterity to see someday
+
+### Jose L Alonso
 
 - 
