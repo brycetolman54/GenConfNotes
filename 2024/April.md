@@ -1,18 +1,30 @@
 # [Saturday Morning Session Speakers](#saturday-morning)
 
-- [Jeffrey R Holland:   Prayer](#jeffrey-r-holland)
-- [J Anette Dennis:     Symbols and Covenants](#j-anette-dennis)
-- [Alexander Dushku:    Testimony](#alexander-dushku) 
-- [Ulysses S Soares:    Confidence in Covenants](#ulysses-s-soares)
-- [Jack N Gerard:       Integrity](#jack-n-gerard)
-- [Henry B Eyring:      Temples](#henry-b-eyring) 
+- [Jeffrey R Holland: Prayer](#jeffrey-r-holland)
+- [J Anette Dennis: Symbols and Covenants](#j-anette-dennis)
+- [Alexander Dushku: Testimony](#alexander-dushku) 
+- [Ulysses S Soares: Confidence in Covenants](#ulysses-s-soares)
+- [Jack N Gerard: Integrity](#jack-n-gerard)
+- [Henry B Eyring: Temples](#henry-b-eyring) 
 
 # [Saturday Afternoon Session Speakers](#saturday-afternoon)
 
-- [David A Bednar:      Our Foundation](#david-a-bednar)
-- [Massimo de Feo:      Act in Faith](#massimo-de-feo)
-- [Brent H Nielson:     Witnesses](#brent-h-nielson)
-- [Jose L Alonso:       ](#jose--l-alonso) 
+- [David A Bednar: Our Foundation](#david-a-bednar)
+- [Massimo de Feo: Act in Faith](#massimo-de-feo)
+- [Brent H Nielson: Witnesses](#brent-h-nielson)
+- [Jose L Alonso: Christ is the Center](#jose--l-alonso) 
+- [Gerrit W Gong: Temples](#gerrit-w-gong) 
+- [Micheal T Nelson: Youth](#micheal-t-nelson)
+- [Quentin L Cook: Gospel for All](#quentin-l-cook)
+
+# [Saturday Evening Session](#saturday-evening)
+
+- [Shane M Bowen: Priesthood Blessings](#shane-m-bowen)
+- [Steven R Bangerter: Our Identity](#steven-r-bangerter)
+- [Andrea Munoz Spannaus: Five Stones](#adnrea-munoz-spannaus)
+- [Dieter F Uchtdorf: Gospel Joy](#dieter-f-uchtdorf)
+
+
 
 
 ## Saturday Morning
@@ -73,4 +85,45 @@
 
 ### Jose L Alonso
 
-- 
+- When I think of heaenly visits, I often think of things like being visited by an angel as Nephi and his brothers were or as Joseph Smith was. I want to change that thinking. Heavenly visits can come by the Spirit or by others sent by God. Don't be insensitive to those visits. Have an open heart and be willing to surrender when the Lord desires it of you.
+
+### Gerrit W Gong
+
+
+### Michael T Nelson
+
+- I wonder how often I decide to rely on my own strength instead of turning to the Lord to receive His strength. God does want people that act for themselves, but I feel like I take that idea too far sometimes. I want to counsel more with the Lord andbecome more humble instead of just going to God thinking I know it all already
+- While family is the central unit of society and is central to the eternal destiny of all of God's children, I still think there is something to say about wards and stakes and those called therein to serve the youth. We can do our part, not to replace the role of parents, but to supplement it.
+
+### Quentin L Cook
+
+- One of the greatest things abot the Gospel is that it is available to all who want to partkae of it. There is nothing inherently keeping anoyone fromm accepting the Atonement of the Lord.
+- I want to teach my children of the importance of agency and what it means for them in their lives. It is truly one of the greatest gifts that we have. We get to <b>choose</b> what we want to do and who we want to become. <i>Is that not one of the most enabling thoughts?</i>
+
+
+## Saturday Evening
+
+### Shayne M Bowen
+
+- I want to live worthy every day to use the priesthood power to bless my family and others
+- I want to live a life such that I have the faith to bless others with what God has in store for them, to not allow my lack of faith or worthiness to be what keeps them from receiving the blessings they deserve
+
+### Steven R Bangerter
+
+- I want to teach my children their worth and value, that they have been foreordained for great things. I want to help them cultivate their talents and develop them to the point that they can bless others with them.
+- I need to remember to protect the private times of my life, to use that time when I think nobody else is there or will be affected for good
+    - <b><i>Aun un grado</i></b>, remember that Bryce
+
+### Andrea Munoz Spannaus
+
+- Another comment about understanding our true identity. Maybe make that a study topic
+- Another comment about being connected to Christ
+
+### Matthew L Carpenter
+
+- I don't think I do a good job counseling with my wife. I think I either am stuck in my ways or just allow her to do what she wants. I need to get better at that
+- Include in your prayers the plea to become a better spouse. And <b>be specific</b> with what you pray for
+
+### Dieter F Uchtdorf
+
+- If I want to feel joy in my marriage, I need to focus on Rylie having joy 
