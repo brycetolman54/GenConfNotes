@@ -1,3 +1,8 @@
+---
+title: April 2024 General Conference
+---
+
+
 # [Saturday Morning Session Speakers](#saturday-morning)
 
 - [Jeffrey R Holland: Prayer](#jeffrey-r-holland)
@@ -17,13 +22,22 @@
 - [Micheal T Nelson: Youth](#micheal-t-nelson)
 - [Quentin L Cook: Gospel for All](#quentin-l-cook)
 
-# [Saturday Evening Session](#saturday-evening)
+# [Saturday Evening Session Speakers](#saturday-evening)
 
 - [Shane M Bowen: Priesthood Blessings](#shane-m-bowen)
 - [Steven R Bangerter: Our Identity](#steven-r-bangerter)
 - [Andrea Munoz Spannaus: Five Stones](#adnrea-munoz-spannaus)
 - [Dieter F Uchtdorf: Gospel Joy](#dieter-f-uchtdorf)
 
+# [Sunday Morning Session Speakers](#sunday-morning)
+
+- [Ronald A Rasband: Words](#ronald-a-rasband) 
+- [Susan H Porter: Prayer](#susan-h-porter)
+- [Dale G Renlund: Momentum](#ronald-a-rasband)
+- [Paul B Pieper: Trust](#paul-b-pieper)
+- [Patrick Kearon: Salvation](#patrick-kearon)
+- [Brian K Taylor: Support from the Lord](#brian-k-taylor)
+- [Dallin H Oaks: Covenants](#dallin-h-oaks)
 
 
 
@@ -127,3 +141,39 @@
 ### Dieter F Uchtdorf
 
 - If I want to feel joy in my marriage, I need to focus on Rylie having joy 
+
+
+
+## Sunday Morning
+
+### Ronald A Rasband
+
+- I want to make sure hat I don't ever speak to anyone in anger. especialy to my wife or my children. Take the time to think and calm down before speaking. Speaking in anger does not help <b>anyone</b>
+- I want to make sure my children and wife hear me say "I love you" and "Thank you"
+
+### Susan H Porter
+
+- Pray to <b>know</b>, pray to <b>grow</b>, pray to <b>become</b>
+
+### Dale G Renlund 
+
+- I need to keep finding ways to build and maintain my spiritual momentum, both for myself and for my family
+    - I need to take more initiative in calling together the family for prayer and scripture study
+
+### Paul B Pieper
+
+- Relatinships require both peole to trsut one another. <i>How well am I trusting Rylie?</i>
+- If you want to have ore trust in God, do things that require you to trust Him. Thinking about your job, your education, and your future family and the responsibility that you have to provide for them, trust that God will provide. I don't know I don't know if that means to trust Him about the money that I wll make or that He will provide while I am in school or that I can do what I think is best and trust that He will make it work. Keep thinking about it and praying.
+
+### Patrick Kearon
+
+- The Lord wants us to come home
+
+### Brian K Taylor
+
+- I need you to read this again and focus on how it applies to your education and career choices
+
+### Dallin H Oaks
+
+- Stuy this one more with the goal in mind to better understand how to live in accordance withe the covenants you have mad.
+
